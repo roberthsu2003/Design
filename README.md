@@ -8,3 +8,6 @@
 	- Quick Mockup
 	- Whiteboard
 	- Stark
+	- wireframer
+	- web Export
+	- Pixels
