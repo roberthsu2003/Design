@@ -13,8 +13,17 @@
 
 ## 2024_09_23_早上
 
-https://meet.google.com/nav-huvb-fsi
+https://youtube.com/live/4i0zQ0Zf0_0
 
 ## 2024_09_23_下午
 
 https://youtube.com/live/RRC8wKsU0-A
+
+## 2024_09_24_早上
+
+https://youtube.com/live/l9_nPUM7vEk
+
+
+## 2024_09_24_下午
+
+https://youtube.com/live/sGERR10vdaEs
